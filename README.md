@@ -1,2 +1,2 @@
-https://soryankumar.com
+https://www.soryankumar.com
 
